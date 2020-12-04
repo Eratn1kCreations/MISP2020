@@ -1,0 +1,1 @@
+Zadania zostały pogrupowane zgodnie w foldery odpowiadające kolejnym tygodniom zajęć.
